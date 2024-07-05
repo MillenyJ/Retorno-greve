@@ -2,7 +2,7 @@
 
 Este repositorio é utilizado na disciplina de Psi
 
-## Eu NÃO aguebto mais
+## Eu NÃO aguento mais
 
 **Milleny**
 *Jamily*
